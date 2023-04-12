@@ -13,7 +13,7 @@
 
 
 # Fivem Portugal Configuration #
-- [Official Discord Of Fivem Portuguese Help](https://discord.gg/cCc7RG6xKr)
+- [None so i put mine](https://discord.gg/PgEe8Yg)
 
 
 
